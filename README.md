@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ravikant2003
-- 🌱 I’m currently in class 12 at Delhi Public School Bhilai chhattisgarh 
+- 🌱 I’m currently have completed my class 12 in 2021 at Delhi Public School Bhilai chhattisgarh India
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
